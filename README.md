@@ -1,3 +1,3 @@
 # SUKH-FOLDER
 OWNER SUKHWINDER SINGH
-sukh creater
+ Sukh Singh  Creator
